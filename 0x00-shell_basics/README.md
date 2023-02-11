@@ -1,1 +1,1 @@
-file type
+We are symbols
