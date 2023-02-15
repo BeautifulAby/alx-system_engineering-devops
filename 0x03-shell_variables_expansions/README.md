@@ -1,1 +1,1 @@
-10 types of people in the world
+ Those who understand binary and those who do not
