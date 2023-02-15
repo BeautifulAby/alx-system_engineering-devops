@@ -1,1 +1,1 @@
-Divide and Rule
+Love is anterior to life
