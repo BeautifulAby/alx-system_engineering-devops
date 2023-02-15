@@ -1,1 +1,1 @@
-The eggs of the brood needs to be an odd number
+I'm an instant star.Just add water and stir
