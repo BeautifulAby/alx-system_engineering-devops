@@ -1,1 +1,1 @@
-Everyone is a propent of sstrong encryption
+I'm an instant star. Just add water and stir
