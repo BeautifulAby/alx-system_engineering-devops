@@ -1,1 +1,1 @@
-No more Javascript
+Being unique is better than being perfect
